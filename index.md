@@ -7,4 +7,5 @@
 * <https://www.showeet.com/>
 * <https://www.presentationgo.com/>
 * <https://www.free-powerpoint-templates-design.com/>
+* <http://cityhubs.net/news.html>
 
